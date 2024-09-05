@@ -10,4 +10,4 @@
 
   
 
- ![](https://media1.tenor.com/m/rACyaLH5y4QAAAAd/yy6uri-yurleezy.gif)
+ ![](https://steamuserimages-a.akamaihd.net/ugc/362904121310385345/6DE51E25B094EE5E73F382D60AD963DD11733B24/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
